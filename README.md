@@ -1,0 +1,1 @@
+# Brauzer-Tarix-Simulyatori-Stack-va-Queue-
